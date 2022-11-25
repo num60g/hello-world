@@ -6,7 +6,8 @@ For bog-roll, please refer to [www.urbandictionary: bog roll] (http://www.urband
 
 
 ## 日本語で
-こんにちは。
+こんにちは、
+おあいできてうれしいです。
 
 私は bog-roll になりたい。  
 bog-roll については、[www.urbandictionary: bog roll] (http://www.urbandictionary.com/define.php?term=bog%20roll) を参考にしてください。  
